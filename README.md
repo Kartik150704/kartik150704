@@ -6,5 +6,5 @@
 
 - 🌱 Passionate about cutting-edge technology and transformative solutions.
 
-- 📫 Reach out to me at **2021csb1101@iitrpr.ac.in**.
+- 📫 Reach out to me at **kartik@easecruit.com**.
 
